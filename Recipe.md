@@ -15,3 +15,8 @@ Icing:
 Whip 2 cups of whipping cream for 10 -15 mins .Add chocolate syrup. Cover the cake with the icing and with icing cone make flowers.
 
 Add Choco chips and sprinkles.
+
+
+
+
+                                                                              And you are done 
